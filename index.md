@@ -1,4 +1,4 @@
-# Mingare family secret recipes
+# Mingare family mysterious ecret recipes
 
 Set of recipes as given by my grandma.
 
